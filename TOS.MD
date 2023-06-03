@@ -1,0 +1,3 @@
+Here are the Melobot T.O.S below:
+
+by using Melobot you authorize Melobot to collect the following data: server name, server identifier, voice channel identifier, to request a deletion of your data, please send me an email at the address below: Lopimakee@ gmail.com i will reply as soon as possible Melobot hardly asks for permissions on your server, if you have any problem with the permissions it has, please email me at the above address if any vulnerability security has been discovered in Melobot, do not exploit it. Send me an email as soon as possible so that I can identify it, I do not guarantee that the music is free of rights, the artists playing on the radio have absolutely nothing to do with me.
